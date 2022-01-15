@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @enderrrrrrrrrrrrrYT
+- 👀 I’m interested in Programming and Gaming
+- 🌱 I’m currently learning Programming
+- ❓ If you have some questions or tips contact me on discord @enderrrrrrrrrr#6382
+- 🤔 I dont have Windows 11 if you know how to install it on unsupported hardware Pls contact me!
